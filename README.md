@@ -83,6 +83,69 @@ Want recommendations based on your current situation (salary, career goals, or b
 Absolutely! Here’s a breakdown of each book—what it’s about, why it’s useful, and key takeaways to help you build wealth:
 
 
+Books on Mental Toughness & Discipline:
+
+If you liked Can't Hurt Me and The 48 Laws of Power, you’ll probably enjoy these hard-hitting, no-nonsense books on mental toughness, strategy, and self-mastery. Here's a list of similar reads:
+
+
+---
+
+Books on Mental Toughness & Discipline:
+
+1. "Atomic Habits" – James Clear
+Small habits = huge results. Actionable system to build habits and break bad ones.
+
+
+2. "The War of Art" – Steven Pressfield
+A deep dive into resistance and how to overcome procrastination and self-doubt.
+
+
+3. "Grit" – Angela Duckworth
+Passion + perseverance > talent. Explores why grit matters more than IQ or luck.
+
+
+4. "Unbeatable Mind" – Mark Divine
+Navy SEAL strategies to develop mental strength, focus, and leadership.
+
+
+5. "Discipline Equals Freedom" – Jocko Willink
+Hardcore guide to taking control of your life through daily discipline.
+
+
+
+
+---
+
+Books on Power, Strategy & Psychology:
+
+6. "The Art of War" – Sun Tzu
+Timeless military strategy with applications in business and life.
+
+
+7. "Mastery" – Robert Greene
+How to achieve true mastery in any field — from Da Vinci to Einstein.
+
+
+8. "Ego is the Enemy" – Ryan Holiday
+Your biggest enemy is your own ego. Learn to stay humble and focused.
+
+
+9. "The Obstacle Is the Way" – Ryan Holiday
+Stoic philosophy in action: Turn adversity into advantage.
+
+
+10. "Meditations" – Marcus Aurelius
+A Roman emperor’s journal on discipline, leadership, and inner peace.
+
+
+
+
+---
+
+Want a PDF collection of summaries, audiobook links, or personalized picks based on your vibe?
+
+
+
 ---
 
 1. The Richest Man in Babylon – George S. Clason
